@@ -1,2 +1,5 @@
 # MercadoTech
-MercadoTech - Intro
+Laura Flórez
+Laura Valero
+Laura Villa
+Jennifer Camacho
